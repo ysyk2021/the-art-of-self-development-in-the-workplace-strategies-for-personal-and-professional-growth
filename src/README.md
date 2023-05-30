@@ -10,4 +10,4 @@ Whether you're just starting out in your career or are looking for ways to advan
 
 So, if you're ready to take the next step in your personal and professional development, join us on this journey towards self-discovery and growth.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
