@@ -1,5 +1,3 @@
-Fostering a Growth Mindset
-==============================================================================
 
 In this chapter, we will discuss strategies for managing resistance to self-development and fostering a growth mindset in the workplace.
 

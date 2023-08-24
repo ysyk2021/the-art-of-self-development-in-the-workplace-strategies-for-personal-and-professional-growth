@@ -1,5 +1,3 @@
-Utilizing Feedback and Coaching
-===================================================================================
 
 In this chapter, we will discuss the importance of utilizing feedback and coaching to develop your self-development skills in the workplace.
 

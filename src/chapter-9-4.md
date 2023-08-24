@@ -1,5 +1,3 @@
-Avoiding Information Overload
-====================================================================================
 
 Leveraging technology for self-development can be a valuable tool for achieving personal and professional growth in the workplace. However, with the abundance of information available, it is important to avoid information overload. This chapter will explore strategies for leveraging technology for self-development while avoiding information overload.
 

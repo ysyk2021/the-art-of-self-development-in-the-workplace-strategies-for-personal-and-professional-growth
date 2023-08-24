@@ -1,5 +1,3 @@
-Communicating Effectively
-=============================================================================
 
 Effective communication is an essential skill for personal and professional growth. In this chapter, we will explore strategies for maximizing your self-development skills through effective communication in the workplace.
 

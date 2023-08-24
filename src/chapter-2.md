@@ -1,5 +1,3 @@
-Chapter 2: Defining Self-Development
-====================================
 
 Self-development is a critical aspect of personal and professional growth in the workplace. This chapter will provide an overview of self-development, explore the science behind personal and professional growth, and offer advice on assessing your personal approach to self-development.
 

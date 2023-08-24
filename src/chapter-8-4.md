@@ -1,5 +1,3 @@
-Celebrating Self-Development Achievements
-============================================================================================
 
 Creating a culture of self-development is critical for organizations looking to attract and retain top talent. This chapter will explore the importance of celebrating self-development achievements in creating a culture of self-development in the workplace.
 

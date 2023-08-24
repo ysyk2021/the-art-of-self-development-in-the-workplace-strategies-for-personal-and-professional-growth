@@ -1,5 +1,3 @@
-Encouraging Proactive Self-Development Across the Organization
-=================================================================================================================
 
 Developing a culture of self-development is critical for organizations that want to succeed in today's rapidly changing business environment. This chapter will explore strategies for encouraging proactive self-development across the organization.
 
@@ -35,5 +33,4 @@ Conclusion
 Creating a culture of self-development requires a concerted effort from all levels of an organization. By providing resources, encouraging manager support, recognizing and rewarding self-development, and defining what a culture of self-development means for the organization, organizations can inspire individuals to take ownership of their personal and professional growth.
 
 In turn, this creates a more engaged, motivated, and skilled workforce that is better equipped to meet the challenges of today's rapidly changing business environment.
-
 

@@ -1,5 +1,3 @@
-Chapter 7: Managing Resistance to Self-Development
-==================================================
 
 Managing resistance to self-development is critical for achieving personal and professional growth in the workplace. This chapter will explore identifying common sources of resistance to self-development, developing strategies for overcoming resistance, addressing fear and uncertainty, and fostering a growth mindset.
 
