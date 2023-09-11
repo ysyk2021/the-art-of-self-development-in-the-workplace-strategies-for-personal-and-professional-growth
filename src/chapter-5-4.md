@@ -1,5 +1,4 @@
-Chapter 12: Fostering Confidence and Resilience
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for fostering confidence and resilience in the workplace as part of self-development. Confidence and resilience are essential qualities that empower individuals to navigate challenges, overcome setbacks, and achieve personal and professional growth. By cultivating these attributes, individuals can embrace opportunities, adapt to change, and thrive in the face of adversity. Let's delve into the art of fostering confidence and resilience.
 

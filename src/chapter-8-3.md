@@ -1,5 +1,4 @@
-Chapter 9: Fostering Knowledge Sharing and Mentorship
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the ever-evolving workplace, fostering a culture of knowledge sharing and mentorship is essential for personal and professional growth. In this chapter, we explore the significance of these practices and how they contribute to individual development and organizational success.
 

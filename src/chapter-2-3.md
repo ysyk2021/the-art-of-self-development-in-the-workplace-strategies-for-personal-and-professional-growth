@@ -1,5 +1,4 @@
-Chapter 3: Assessing Your Personal Approach to Self-Development
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of assessing your personal approach to self-development. By evaluating your current practices and mindset, you can identify areas for improvement and enhance the effectiveness of your self-development journey. Let's delve into the process of assessing your personal approach to self-development.
 

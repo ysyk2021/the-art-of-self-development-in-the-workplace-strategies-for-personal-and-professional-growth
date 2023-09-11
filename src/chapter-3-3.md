@@ -1,5 +1,4 @@
-Chapter 10: Setting Realistic Goals and Objectives
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for setting realistic goals and objectives in the workplace as part of self-development. Setting clear and achievable goals is essential for personal and professional growth. By understanding how to set realistic goals, individuals can create a roadmap for success, stay motivated, and track progress effectively. Let's delve into the art of setting realistic goals and objectives.
 

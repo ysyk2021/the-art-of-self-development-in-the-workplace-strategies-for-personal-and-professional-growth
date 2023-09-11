@@ -1,5 +1,4 @@
-Chapter 7: Recognizing How Self-Development Contributes to Success
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how self-development plays a crucial role in achieving success in both personal and professional domains. By recognizing the impact of self-development on various aspects of life, individuals can harness its power to reach their full potential and attain long-term success. Let's delve into how self-development contributes to success.
 

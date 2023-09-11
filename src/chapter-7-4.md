@@ -1,5 +1,4 @@
-Chapter 6: Fostering a Growth Mindset
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of fostering a growth mindset as a powerful strategy for self-development in the workplace. A growth mindset is the belief that our abilities and intelligence can be developed through dedication, effort, and continuous learning. By cultivating a growth mindset, individuals can embrace challenges, overcome setbacks, and unlock their full potential for personal and professional growth. Let's delve into the art of fostering a growth mindset.
 

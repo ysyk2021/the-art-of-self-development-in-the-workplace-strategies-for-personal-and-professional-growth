@@ -1,5 +1,4 @@
-Chapter 4: Addressing Limiting Beliefs
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the crucial topic of addressing limiting beliefs on our journey of personal and professional growth. Limiting beliefs are deeply ingrained thoughts or perspectives that hold us back from reaching our full potential. By recognizing and challenging these beliefs, we can break free from self-imposed barriers and unlock new possibilities for growth. Let's delve into strategies for addressing limiting beliefs.
 

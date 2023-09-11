@@ -1,5 +1,4 @@
-Chapter 11: Fostering Accessibility and Inclusivity
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of fostering accessibility and inclusivity in the workplace for personal and professional growth. Creating an environment where everyone feels valued, respected, and included is not only morally right but also contributes to productivity, innovation, and overall success. By embracing diversity, promoting equality, and removing barriers, individuals can thrive and unlock their full potential. Let's delve into the art of fostering accessibility and inclusivity in the workplace.
 

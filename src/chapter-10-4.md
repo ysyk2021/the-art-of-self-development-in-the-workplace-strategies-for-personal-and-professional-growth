@@ -1,5 +1,4 @@
-Chapter 9: Adapting to Changes in the Workplace
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of adaptability in the face of changes in the workplace and how it contributes to personal and professional growth. The ability to navigate and embrace change is crucial in today's dynamic and evolving business environment. By developing a mindset of adaptability and adopting effective strategies, individuals can not only thrive amidst workplace changes but also use them as opportunities for growth and advancement. Let's delve into the art of adapting to changes in the workplace.
 

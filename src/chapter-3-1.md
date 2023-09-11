@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Cultivating a Self-Development Mindset
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques for cultivating a self-development mindset in the workplace. A self-development mindset involves actively seeking opportunities for growth, embracing continuous learning, and taking ownership of one's personal and professional development. By implementing these techniques, individuals can foster a proactive approach to self-improvement and achieve long-term success. Let's delve into the art of cultivating a self-development mindset.
 

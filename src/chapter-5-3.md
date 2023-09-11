@@ -1,5 +1,4 @@
-Chapter 6: Communicating Effectively
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of effective communication in the workplace and its impact on personal and professional growth. Effective communication is a vital skill that fosters collaboration, builds relationships, and promotes success. By mastering effective communication strategies, we can enhance our interactions and create a positive and productive work environment. Let's delve into the art of communicating effectively.
 

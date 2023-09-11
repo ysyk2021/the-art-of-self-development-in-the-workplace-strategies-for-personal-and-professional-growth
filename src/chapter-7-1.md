@@ -1,5 +1,4 @@
-Chapter 8: Identifying Common Sources of Resistance to Self-Development
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the common sources of resistance that individuals may face on their journey of self-development in the workplace. By recognizing and understanding these sources of resistance, we can effectively address them and overcome barriers to personal and professional growth. Let's delve into the identification of common sources of resistance.
 

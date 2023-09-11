@@ -1,5 +1,4 @@
-Chapter 14: Developing Strategies for Overcoming Resistance
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for overcoming resistance to self-development in the workplace. Resistance can manifest in various forms and hinder personal and professional growth. By understanding and addressing the underlying causes of resistance, individuals can develop strategies to overcome barriers and embrace self-development. Let's delve into the art of developing strategies for overcoming resistance.
 

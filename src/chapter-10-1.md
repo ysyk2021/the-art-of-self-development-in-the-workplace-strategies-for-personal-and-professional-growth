@@ -1,5 +1,4 @@
-Chapter 8: Tracking Progress and Measuring Results
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of tracking progress and measuring results in the journey of personal and professional growth. Monitoring our progress and evaluating the outcomes of our efforts allows us to stay on track, make informed decisions, and gauge the effectiveness of our development strategies. By adopting effective tracking and measurement techniques, individuals can set benchmarks, identify areas for improvement, and celebrate their achievements. Let's dive into the art of tracking progress and measuring results.
 

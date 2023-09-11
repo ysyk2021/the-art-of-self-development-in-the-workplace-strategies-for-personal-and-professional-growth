@@ -1,5 +1,4 @@
-Chapter 11: Encouraging Proactive Self-Development Across the Organization
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Proactive self-development is key to personal and professional growth in the workplace. In this chapter, we explore the importance of fostering a culture that encourages individuals to take ownership of their development and provides support for their self-improvement efforts.
 

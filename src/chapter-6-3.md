@@ -1,5 +1,4 @@
-Chapter 7: Utilizing Feedback and Coaching
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of feedback and coaching in personal and professional growth within the workplace. Feedback and coaching are powerful tools that provide individuals with valuable insights, guidance, and support to enhance their skills, performance, and overall development. Let's delve into how to effectively utilize feedback and coaching for personal and professional growth.
 

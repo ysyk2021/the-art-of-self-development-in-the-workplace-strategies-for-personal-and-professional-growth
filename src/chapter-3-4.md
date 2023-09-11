@@ -1,5 +1,4 @@
-Chapter 12: Developing Empathy and Compassion through Self-Development
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of developing empathy and compassion in the workplace and how it can be achieved through self-development. Empathy and compassion foster positive relationships, enhance teamwork, and contribute to a supportive work environment. By actively cultivating these qualities within ourselves, we can create a more inclusive and empathetic workplace culture. Let's delve into the art of developing empathy and compassion through self-development.
 

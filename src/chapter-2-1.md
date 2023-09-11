@@ -1,5 +1,4 @@
-Chapter 1: Overview of Self-Development
-=======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will provide an overview of self-development and its significance in personal and professional growth. We will explore the concept of self-development, its benefits, and the key principles that underpin effective self-development strategies. Let's delve into the world of self-development.
 

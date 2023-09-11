@@ -1,5 +1,4 @@
-Chapter 2: Understanding the Science Behind Personal and Professional Growth
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the fascinating science behind personal and professional growth. By understanding the underlying principles and mechanisms that drive our development, we can optimize our strategies and enhance our journey of self-improvement. Let's delve into the science behind personal and professional growth.
 
